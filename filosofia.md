@@ -1,0 +1,1 @@
+Jiu-jitsu significa arte suave. Ela tem como princípio e finalidade a economia de energia e a eficiencia. Sendo um sistema que deve ser executado buscando a eficiencia. O caminho que te leva pro seu objetivo deve levar em conta o tempo que irá necessitar, a quantidade de força e de quantidade de movimentos.
