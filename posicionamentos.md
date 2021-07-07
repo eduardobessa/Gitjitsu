@@ -1,0 +1,1 @@
+Principais posições dentro do jogo. Luta em pé -quedar ou puxar pra guarda- passando guarda, fazendo guarda, 100kg, joelho na barrig, montada de frente, montada de costas, fifty fifty, meia nove, quatro apoios.
