@@ -1,0 +1,1 @@
+Piores situações no jogo: montada de frente e montada pelas costas. Se o adversário chegar nessas posições ele ganha a pontuação máxima, pois é uma posição que quase não oferece risco pra ele e ele tem um grande leque de finalizações. Iniciaremos aprendendo a sair da montada de frente.
